@@ -8,6 +8,9 @@ I will work hard and persevere to achieve my goal and I will increase my knowled
 . Tailoring
 ### Languages
 - English(Normal)
+
 ###Contact Me
+
 -Gmail:Paritajik1234@gmail.com
+
 - Quera Profile: <a href="https://quera.ir/profile/paritajik1234">My Profile</a>
